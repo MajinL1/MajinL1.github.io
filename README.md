@@ -1,0 +1,1 @@
+# MajinL1.github.io
